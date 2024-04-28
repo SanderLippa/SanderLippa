@@ -1,2 +1,1 @@
-# I suffer in silence 👍
-## there is a pipe bomb in your mailbox
+# You're not supposed to be here :(
